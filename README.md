@@ -1,4 +1,4 @@
-## **Sega's Privacy Policy**
+## **Rexon's Privacy Policy**
 ### By using Sega you accept with its privacy policy.
 
 ## 1. What does it store?
