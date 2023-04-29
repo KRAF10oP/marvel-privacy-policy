@@ -1,5 +1,5 @@
-## **Rexon's Privacy Policy**
-### By using Sega you accept with its privacy policy.
+## **Quantum's Privacy Policy**
+### By using Quantum you accept with its privacy policy.
 
 ## 1. What does it store?
 
