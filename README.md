@@ -1,5 +1,5 @@
-## **Quantum's Privacy Policy**
-### By using Quantum you accept with its privacy policy.
+## **Rexon's Privacy Policy**
+### By using Rexon you accept with its privacy policy.
 
 ## 1. What does it store?
 
