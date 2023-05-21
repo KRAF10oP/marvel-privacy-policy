@@ -1,5 +1,5 @@
-## **Rexon's Privacy Policy**
-### By using Rexon you accept with its privacy policy.
+## **Marvel Privacy Policy**
+### By using Marvel you accept with its privacy policy.
 
 ## 1. What does it store?
 
